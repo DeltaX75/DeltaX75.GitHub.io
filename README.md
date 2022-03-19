@@ -1,5 +1,3 @@
-# Welcome to Walter Brien's Page
-
 ## 孙宇琛(YuChen Sun)
 
 本科生,中共预备党员
